@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Learning,Music,Chess.
 - 🌱 I’m currently learning ...BE.ECE
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... linked 
+- 📫 How to reach me ... linked in 
 - 😄 Pronouns: ... Believe in You
 - ⚡ Fun fact: ...
 
